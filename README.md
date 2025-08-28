@@ -1,1 +1,1 @@
-# Zero-Waste-connect
+# ZeroWasteConnect
